@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @TenseMagazine
+- 👀 I’m interested in Publishing Content on [Tense Magazine](https://tensemagazine.com/)
+- 📫 How to reach me at [contact](https://tensemagazine.com/about-tense-magazine/)
